@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @simondalgleish
-- 👀 I’m interested in math, finance, economics, philosophy, physics, well-being, meditation, excersize and getting out doors
+- 👀 I’m interested in math, finance, economics, philosophy, physics, well-being, meditation, excercise and getting out doors
 - 🌱 I’m currently learning some basics
 - 💞️ I’m looking to collaborate on not sure yet
 - 📫 How to reach me e-mail: jsdalgle@gmail.com
